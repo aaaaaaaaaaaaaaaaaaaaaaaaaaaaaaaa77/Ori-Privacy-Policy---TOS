@@ -1,5 +1,7 @@
 # Ori-Privacy-Policy---TOS
 Ori's Privacy Policy &amp; TOS
+
+
 by using Ori, you agree with this Privacy Policy, Terms of Use, and its consequences.
 PRIVACY POLICY
 This Privacy Policy was last updated on the 10th Of May 2021.
